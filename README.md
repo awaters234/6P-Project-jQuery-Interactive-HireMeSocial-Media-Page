@@ -1,1 +1,0 @@
-# 6P-Project-jQuery-Interactive-HireMeSocial-Media-Page
